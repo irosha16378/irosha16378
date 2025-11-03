@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **irosha16378@gmail.com**
 
-- ⚡ Fun fact **call me as katama**
+
 
 
 
